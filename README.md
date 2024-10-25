@@ -2,7 +2,7 @@
 - 👀 I’m interested in ...logical projects
 - 🌱 I’m currently learning ...react native
 - 💞️ I’m looking to collaborate on ...JavsScript Projects
-- 📫 How to reach me ...  call/whatsapp +2349034633047,
+- 📫 How to reach me ...  call/whatsapp +2349058687528,
 - Send me an email @ chigbustephennamdi@gmail.com
 - My personal portfolio website  is undergoing development
 
